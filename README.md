@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @IRMRex
+- 👀 I’m interested in Operating systems
+- 🌱 I’m currently learning SQL/JAVA
+- 💞️ I’m looking to collaborate on Random projects in the langs that I am learning.
+- 📫 How to reach me N/A
+- 😄 Pronouns: He/Him
